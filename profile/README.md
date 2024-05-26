@@ -1,5 +1,5 @@
-[DAFTAR DISINI](https://selaluape77.com/)
-[LOGIN DISINI](https://selaluape77.com/)
+[DAFTAR DISINI](https://vvipape77.store/)
+[LOGIN DISINI](https://vvipape77.store/)
 
 Pada bagian ini, kami akan memberikan informasi terbaru mengenai link login resmi APE77 yang dapat diakses hari ini. Pemain dapat dengan mudah bergabung dan masuk ke dalam situs APE77 melalui link login yang kami sediakan. Kami akan memastikan bahwa link login yang kami berikan adalah valid dan resmi, sehingga para pemain dapat dengan aman dan nyaman menikmati berbagai permainan yang ditawarkan oleh APE77.
 
